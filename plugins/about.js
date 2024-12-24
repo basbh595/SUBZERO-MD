@@ -38,20 +38,20 @@ I am  WhatsApp Based Multi Device Bot Created By Darrell Mucheri T from Zimbabwe
 \n\n *For More Visit*: https://mrfrankinc.vercel.app/
 ━━━━━━━━━━━━━━━━━━━━━━━━
 
-> *SOURCE CODE* : https://github.com/mrfrank-ofc/SUBZERO-MD
+> *SOURCE CODE* : https:
 
-> *FOLLOW OWNER* :https://github.com/mrfrank-ofc/
+> *FOLLOW OWNER* :https:
 
-> *OWNER'S WHATSAPP* : https://wa.me/18062212660/?text=SubZero+Fan+Here
+> *OWNER'S WHATSAPP* : https://
 
 > *maintained by* :
-https://wa.me/265993702468/?text=SubZero+Fan+Here
+https://wa.
 
-> *SUPPORT CHANNEL* : https://whatsapp.com/channel/0029VagQEmB002T7MWo3Sj1D
+> *SUPPORT CHANNEL* : 
 
-> *FOLLOW INSTAGRAM* :https://instagram.com/mrfrankofc/
+> *FOLLOW INSTAGRAM* :
 
-> *FOLLOW OWNER* :https://youtube.com/mrfr4nk/
+> *FOLLOW OWNER* :
 
  *RELEASE DATE* - *15 December 2024*
  
